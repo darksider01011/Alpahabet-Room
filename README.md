@@ -1,1 +1,1 @@
-![](https://gyazo.com/eb5c5741b6a9a16c692170a41a49c858.png)
+<img src="20250212_225401.jpg" alt="Alt Text" width="300" height="200">
